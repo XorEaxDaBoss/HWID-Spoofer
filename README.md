@@ -3,7 +3,7 @@
 
 ## [Discord Server Link](https://discord.gg/https://discord.gg/jUFczbxX9J)
 
-> ##### This program is free.It can be published for free but you are not allowed to sell it. This program is virus free and safe, I confirm that.
+> ##### This program is free. It can be published for free but you are not allowed to sell it. This program is virus free and safe, I confirm that.
 
 ### How does this program help?
 - ##### Reset IP 
